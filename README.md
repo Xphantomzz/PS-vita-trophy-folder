@@ -9,9 +9,8 @@ By Xphantomzz
 4 Once all games have loaded sync to psn network 
       
 Note : In upcoming releases more trophies will be added. Also note transferring the files wil take a long time and use USB if possible for optimized speed.
-               ---                    --
-___  _________ |  |__ _____    _____/  |_  ____   _____ ________________
-\  \/  /\____ \|  |  \\__  \  /    \   __\/  _ \ /     \\___   /\___   /
- >    < |  |_> >   Y  \/ __ \|   |  \  | (  <_> )  Y Y  \/    /  /    / 
-/__/\_ \|   __/|___|  (____  /___|  /__|  \____/|__|_|  /_____ \/_____ \
-      \/|__|        \/     \/     \/                  \/      \/      \/
+               
+               
+ my youtube - https://www.youtube.com/channel/UCcxiZ-t3Bo_0vhEUv4v8i9g
+ 
+ my instagram - psn_trophies_1
