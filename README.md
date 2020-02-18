@@ -13,4 +13,4 @@ Note : In upcoming releases more trophies will be added. Also note transferring 
                
  my youtube - https://www.youtube.com/channel/UCcxiZ-t3Bo_0vhEUv4v8i9g
  
- my instagram - psn_trophies_1
+ my instagram - @psn_trophies_1
